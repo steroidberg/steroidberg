@@ -1,3 +1,3 @@
-Heya this is Tgent professional byond tard
+Hi
 
-im currently learning how to code in byond and have a test branch of /tg/ to use.
+im currently learning how to code in byond.
